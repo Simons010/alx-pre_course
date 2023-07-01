@@ -1,1 +1,1 @@
-ALready getting along in my projects
+Already getting along in my projects
